@@ -1,1 +1,1 @@
-# infinityspoofer
+discord.gg/infinitycc
